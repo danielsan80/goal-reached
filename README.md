@@ -142,3 +142,8 @@ Chi sono? Mi han detto di dire che sono un marinaio che sta su una nave della st
 macchine. :)
 
 *Danilo, ABMundi Lead Developer*
+
+---
+
+*Pubblicato in Idee, Storie e contrassegnato come diet, idea, internet, life, running, sport,
+story.*
